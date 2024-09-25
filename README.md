@@ -1,5 +1,5 @@
 # 💫 About Me:
-Goal-oriented, inquisitive and have a wide range of technical skills. The most appealing part of this job is facing new<br>challenges that keep me discovering and learning more and more. As an experienced software developer for more<br>than 3 years cumulated to 4 years of customer service experience, I want to prove my value and role as a team<br>player in a structured environment. I am eager to grow and expand my skills through focused mentoring and<br>challenging projects.
+Goal-oriented, inquisitive and have a wide range of technical skills. The most appealing part of this job is facing new<br>challenges that keep me discovering and learning more and more. As an experienced software developer for more<br>than 7 years, I want to prove my value and role as a team<br>player in a structured environment. I am eager to grow and expand my skills through focused mentoring and<br>challenging projects.
 
 
 ## 🌐 Socials:
